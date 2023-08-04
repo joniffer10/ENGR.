@@ -1,2 +1,2 @@
 # ENGR. 
-//i do not own the pictures i included to this website. No infringement intended! 
+//i do not own the pictures i included on this website. No infringement intended! 
